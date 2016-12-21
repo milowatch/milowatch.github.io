@@ -1,3 +1,7 @@
+<header>
+Milo Watch
+</header>
+
 # Milo Yiannopoulos is a danger to campus safety
 Milo Yiannopoulos recently used a campus talk to [out a transgender student](http://nymag.com/thecut/2016/12/milo-yiannopoulos-harassed-a-trans-student-at-uw-milwaukee.html), opening her up for harassment. She has since [left the school](http://www.themarysue.com/milo-yiannopoulos-university-apology/).
 
