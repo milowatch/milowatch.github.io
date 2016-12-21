@@ -1,6 +1,9 @@
 #Milo Yiannopoulos is a danger to campus safety
+
 Milo Yiannopoulos recently used a campus talk to [out a transgender student](http://nymag.com/thecut/2016/12/milo-yiannopoulos-harassed-a-trans-student-at-uw-milwaukee.html), opening her up for harassment. She has since [left the school](http://www.themarysue.com/milo-yiannopoulos-university-apology/).
+
 #Milo Yiannopoulos backed a hate group
+
 Milo Yiannopoulos [saw an opportunity in GamerGate](http://www.salon.com/2014/10/28/gamergates_fickle_hero_the_dark_opportunism_of_breitbarts_milo_yiannopoulos/), a [hate campaign](http://www.bostonmagazine.com/news/article/2015/04/28/gamergate/) focused on harassing, threatening and otherwise intimidating women and people of color in the video games industry. 
 Before Yiannopoulos got [banned from Twitter](https://www.buzzfeed.com/charliewarzel/twitter-just-permanently-suspended-conservative-writer-milo?utm_term=.nuRAp2lLw#.aqk1YJkWK) for encouraging a [racist hate mob](https://www.washingtonpost.com/news/the-intersect/wp/2016/07/21/what-it-takes-to-get-banned-from-twitter/), he was 
 #In his own words
