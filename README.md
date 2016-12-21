@@ -14,9 +14,12 @@ Milo Yiannopoulos [saw an opportunity in GamerGate](http://www.salon.com/2014/10
 Before Yiannopoulos got [banned from Twitter](https://www.buzzfeed.com/charliewarzel/twitter-just-permanently-suspended-conservative-writer-milo?utm_term=.nuRAp2lLw#.aqk1YJkWK) for encouraging a [racist hate mob](https://www.washingtonpost.com/news/the-intersect/wp/2016/07/21/what-it-takes-to-get-banned-from-twitter/), he was 
 
 # Milo Yiannopoulos is unethical
-If his misogynist, transphobic, racist history isn't enough for you, well, Yiannopoulos raised money for a "scholarship" that he [deposited into his own bank account](http://www.mediaite.com/online/breitbarts-milo-yiannopoulos-raised-100k-for-charity-deposits-it-in-his-bank-account/); he also [failed to pay his employees on time and then tried to blackmail them](https://www.theguardian.com/media/2013/mar/01/the-kernel). He [doesn't even write his own articles.](https://www.buzzfeed.com/josephbernstein/top-conservative-writer-is-a-group-effort-sources-say?utm_term=.wyeBG2gwN#.ua9oeDx09)
+If his misogynist, transphobic, racist history isn't enough for you, well, Yiannopoulos raised money for a "scholarship" that he [deposited into his own bank account](http://www.mediaite.com/online/breitbarts-milo-yiannopoulos-raised-100k-for-charity-deposits-it-in-his-bank-account/); he also [failed to pay his employees on time and then tried to blackmail them](https://www.theguardian.com/media/2013/mar/01/the-kernel). He [doesn't even write his own articles.]
+(https://www.buzzfeed.com/josephbernstein/top-conservative-writer-is-a-group-effort-sources-say?utm_term=.wyeBG2gwN#.ua9oeDx09)
+
 # Milo Yiannopoulos is coming to campuses
 Yiannopoulos is currently scheduled to visit UC-Davis, UC-Santa Barbara, Washington State University, University of Washington, University of Colorado Boulder, University of Colorado Colorado Springs, University of New MExico, California Polytechnic State University, UC-Berkeley, and UCLA.
+
 # More information
 * [Milo Yiannopoulos: Breitbart’s star provocateur, Gamergater, and Trump champion, explained](http://www.vox.com/2016/4/4/11355876/milo-yiannopoulos)
 * [What Is The “Alt-Right”? A Guide To The White Nationalist Movement Now Leading Conservative Media](http://mediamatters.org/blog/2016/08/25/what-alt-right-guide-white-nationalist-movement-now-leading-conservative-media/212643)
